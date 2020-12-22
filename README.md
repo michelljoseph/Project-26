@@ -1,2 +1,8 @@
-# angryBirdsStage2
-Angry Birds stage 2 with Class Inheritance and Images
+Start with Butter: Use room temperature butter. You can soften butter quickly with this trick or set the butter out 1-2 hours before you begin.
+Use a mix of Sugars: Cream the butter, brown sugar, and white sugar together. This process aerates the butter, which promises soft chocolate chip cookies. Brown sugar yields soft chocolate chip cookies and white sugar helps the cookies spread. For chewier and more flavorful cookies, use more brown sugar than white sugar.
+Dark Brown Sugar: Light brown sugar and dark brown sugar are interchangeable in most recipes. Though either works in this chocolate chip cookie recipe, I love using dark brown sugar for extra flavor because it holds a little more molasses.
+Add Egg & Vanilla Extract: Eggs provide structure and richness, while vanilla adds flavor.
+Use Cornstarch in Dry Ingredients: Cornstarch, a thickening ingredient, is the secret weapon in this cookie recipe. 2 teaspoons give the cookies extra lift and leave them extra soft. You can’t taste it! You also need all-purpose flour, baking soda, and salt.
+Add Dry Ingredients to Wet Ingredients: Combine all the ingredients, then add the chocolate chips.
+Chill the Cookie Dough: For extra thick chocolate chip cookies, chill the cookie dough for at least 1 hour. Chilling cookie dough will make or break the recipe! The colder the cookie dough, the less the cookies will over-spread. If you’re interested, here are 10 tips to prevent cookies from over-spreading.
+Extra Chocolate Chips: This is optional, but as soon as the cookies come out of the oven, press a few chocolate chips on top. They’ll melt right down into the cookie, making them extra pretty. And melted chocolate is never a bad thing!
